@@ -1,2 +1,2 @@
 # Y--platform-Y
-Y The peoples platform
+Y The people's platform
